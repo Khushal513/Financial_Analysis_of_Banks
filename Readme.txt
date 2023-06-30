@@ -1,6 +1,3 @@
-Thanks for downloading this template!
+Link For the Video :
 
-Template Name: Selecao
-Template URL: https://bootstrapmade.com/selecao-bootstrap-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+https://drive.google.com/file/d/14ToYUsN1QiCFTYw2OFLmNT_JCN62TIVX/view?usp=sharing
